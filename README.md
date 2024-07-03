@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sathiyaseelan30
+- 👀 I’m interested in UI/UX Design
+- 🌱 I’m currently learning UI/UX Design
